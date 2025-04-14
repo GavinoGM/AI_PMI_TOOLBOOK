@@ -85,5 +85,5 @@ L'organizzazione ha integrato l'AI nel proprio modello operativo. Consigliamo di
 
 ---
 
-### LATO Consulting | www.latoconsulting.it | info@latoconsulting.it
+### LATO Consulting | www.lato.design | hallo@lato.design
 *Un futuro migliore by design*
